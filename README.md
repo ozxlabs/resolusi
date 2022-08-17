@@ -1,0 +1,2 @@
+# resolusi
+Resolusi Jangka Panjang
